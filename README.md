@@ -1,5 +1,5 @@
 <h1>《習近平南京宣戰江澤民》</h1>
-<a id="029" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/習近平南京宣戰江澤民-62030178?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="習近平南京宣戰江澤民"><img border="0" alt="習近平南京宣戰江澤民" src="https://cloud.githubusercontent.com/assets/20497761/18823710/626dbea8-838a-11e6-9cdd-7760ea69b065.jpg" style="max-width:100%;"></a>
+<a id="029" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/習近平南京宣戰江澤民-62030178?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="習近平南京宣戰江澤民"><img border="0" alt="習近平南京宣戰江澤民" src="https://cloud.githubusercontent.com/assets/20497761/18861712/61569564-8455-11e6-9448-1356e73e6ea8.jpg" style="max-width:100%;"></a>
 
 <h2>内容介绍：</h2>
 
